@@ -1,2 +1,0 @@
-# CodeAlpha-Tasks
-INTERNSHIP - CODEALPHA
